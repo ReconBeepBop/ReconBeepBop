@@ -1,5 +1,5 @@
 # ೃ⁀➷ Recon Here:
-: ̗̀➛ MMath Student Based In The UK<br>: ̗̀➛ Specialising In Data Analysis and Mathematical modelling
+˙⋆✮ MMath Student Based In The UK<br>⋆˚࿔  Specialising In Data Analysis and Mathematical modelling
 
 
 # ・❥・ Beep bop stack:
